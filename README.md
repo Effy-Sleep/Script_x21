@@ -13,4 +13,4 @@
 Script_x2.0 の購入や利用をご希望の方は、以下のDiscordサーバーにご参加ください。  
 サーバー内で詳細な案内を行っております。
 
-🔗 **Discordサーバー:** [https://discord.gg/FfUaenAVFw](https://discord.gg/FfUaenAVFw)
+🔗 **Discordサーバー:** [https://discord.gg/FServer](https://discord.gg/FfUaenAVFw)
